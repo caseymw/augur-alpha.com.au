@@ -1,1 +1,1 @@
-Coming Soon Template
+Landing page for Augur Alpha Pty Ltd
